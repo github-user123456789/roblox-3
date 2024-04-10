@@ -1,0 +1,1 @@
+stinky map[ files
